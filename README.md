@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Chau!
 - 👀 I’m interested in reading, anime, and crocheting!
 - 🌱 I’m currently learning Computer Organization & Architecture.
-- 💞️ I’m looking to collaborate on any projects.
+- 💞️ I’m looking to collaborate on any projects!
 - 📫 How to reach me: nochau34@gmail.com & chaunguyen34@utexas.edu
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I can't distinguish pink and purple.
